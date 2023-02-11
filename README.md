@@ -1,8 +1,6 @@
 **Петренко Александр Викторович**
 Мужчина, 26 лет, родился 13 июня 1996
-https://vk.com/aleksandr6262?z=photo44300903_457248391%2Falbum44300903_0%2Frev
-
-![image](https://user-images.githubusercontent.com/123314530/218269398-64758d11-9399-4110-90ac-99969c6f9724.png)
+![image](https://user-images.githubusercontent.com/123314530/218269432-8aec08e4-f3c2-4d25-92d2-6b8173479d1c.png)
 
 
 *Контакты*
